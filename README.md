@@ -1,1 +1,1 @@
-# ariokondo237.github
+# ariokondo.com
